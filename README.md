@@ -5,7 +5,7 @@
 
 </div><br/>
 
-Apaixoda por tecnologia principalmente Banco de Dados.
+Apaixonada por tecnologia principalmente Banco de Dados.
 
 
 
